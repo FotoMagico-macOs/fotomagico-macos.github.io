@@ -1,0 +1,1 @@
+# fotomagico-macos.github.io
